@@ -1,7 +1,7 @@
 - jol askor jestem cwele
 - yt; @askorr
 - https://t.me/xaskor
-- https://doxbin.com/askor
+- https://doxbin.com/user/askor
 - https://namemc.com/askor
 - Askor#0001
 
