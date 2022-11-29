@@ -1,4 +1,3 @@
-- jol askor jestem cwele
 - yt; @askorr
 - https://t.me/xaskor
 - https://doxbin.com/user/askor
